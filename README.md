@@ -33,6 +33,7 @@ devyani_572 instagram
 welcome to my account devyani_572 snapchat
 
 
+
 sidcoder51
 
 thakuryashika@gmail.com
@@ -73,3 +74,6 @@ Gmail : dipalikamboj0@gmail.com
 Insta: kambojdipali_05
 LinkedIn:https://www.linkedin.com/in/dipali-kamboj
 
+
+devyani_57 discord
+change avtar of my discord 
