@@ -77,3 +77,7 @@ LinkedIn:https://www.linkedin.com/in/dipali-kamboj
 
 devyani_57 discord
 change avtar of my discord 
+
+Name :devyani 
+change phone no.8950989202 to name Devyani
+
